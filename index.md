@@ -8,6 +8,13 @@
 
 ## Social Media Announcements
 
+**Headline:** "Sexy Surprise Saturdays: Pop the Fun and Get Naughty!"
+
+**Copy:**
+
+"🎈 Get ready for an exciting new twist on your Saturday nights with *Sexy Surprise Saturdays!* 🎉 Join us every Saturday at [Your Time] and be part of the fun as you pop a balloon for 100 tokens and reveal a sexy surprise! Each balloon contains a naughty prize that will be performed live, just for you. 💋🎁 Don’t miss out on the fun—mark your calendars, and let’s get popping! 🎈🔥 #SexySaturdays #CamShowFun #PopAndPlay"
+
+
 ### **Instagram-Friendly Announcement**
 
 **Headline:** "Mia's Sexy Surprise Saturdays: Pop the Fun and Get Naughty!"
